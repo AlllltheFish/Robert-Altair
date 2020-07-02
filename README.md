@@ -1,5 +1,5 @@
 # Robert-Altair
-【代发】RA两则。CR作者 木秦。<br/>
+【代发】RA两则。CR作者 木秦 & BIO。<br/>
 Fandom: Assassin's Creed <br/>
 Pairing: Robert/Altair<br/>
 Rating: NC-17<br/>
